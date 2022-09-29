@@ -7,6 +7,7 @@
 - Character #4: Shapeshifting dog sidekick named X (he/him)
   
 Our story begins with...
+- A quirky family made up of friends that have to escape their wooden cabin and retreat to safety near the shore of the island they reside on.
 
 
 ## Chapter 2: Quest
